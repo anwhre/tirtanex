@@ -1,1 +1,0 @@
-# tirtanex.github.io
